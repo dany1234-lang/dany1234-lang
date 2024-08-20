@@ -1,4 +1,4 @@
-oiiii☆*: .｡. o(≧▽≦)o .｡.:*☆=🍕![Uploading MuaKissGIF.gif…]()
+oiiii☆*: .｡. o(≧▽≦)o .｡.:*☆=🍕 ![Uploading MuaKissGIF.gif…]()
 
 
 oii boa chegada! my name DANIELLY mais conhecida como Dany.
