@@ -1,4 +1,5 @@
-oiiii☆*: .｡. o(≧▽≦)o .｡.:*☆=🍕
+oiiii☆*: .｡. o(≧▽≦)o .｡.:*☆=🍕![Uploading MuaKissGIF.gif…]()
+
 
 oii boa chegada! my name DANIELLY mais conhecida como Dany.
 uso este aplicativo (GitHub) pais preciso de nota,brincadeira essa parte.
